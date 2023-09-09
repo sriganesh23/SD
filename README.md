@@ -6,7 +6,7 @@ Hi! I'm **Sri Ganesh**
 - 💞️ I’m looking for Physical Internships . . . .
 - 🔗 Portfolio https://sriganesh23.github.io/GaneshPortfolio/ . . . .
 - 📫 Reach me @ sriganeshgubbala37@gmail.com . . . .
-- 📩 Connect me through Instagram: https: www.instagram.com/sri_ganesh_gubbala/ . . . .
+- 📩 Connect me through Instagram: https://www.instagram.com/sri_ganesh_gubbala/ . . . .
 - ♾ LinkedIn: https://www.linkedin.com/in/sri-ganesh-gubbala-4abaab246/ . . . .
 
 <!---
