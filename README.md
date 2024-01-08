@@ -8,6 +8,7 @@ Hi! I'm **Sri Ganesh**
 - 📫 Reach me @ sriganeshgubbala37@gmail.com . . . .
 - 📩 Connect me through Instagram: https://www.instagram.com/sri_ganesh_gubbala/ . . . .
 - ♾ LinkedIn: https://www.linkedin.com/in/sri-ganesh-gubbala-4abaab246/ . . . .
+- 📧 Resume - https://drive.google.com/file/d/1FSPPfen68EtxLpPEYSqiMkDTVdvmnSSp/view . . . . 
 
 <!---
 sriganesh23/sriganesh23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
